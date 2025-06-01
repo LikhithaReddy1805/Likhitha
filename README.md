@@ -1,7 +1,7 @@
 # Bayathatha Gari Likhitha Reddy
 
 **Aspiring AI Engineer | Computer Science Undergrad | Enthusiastic Tech Learner**  
-📍 Bengaluru, India | 📧 likhithab205@gmail.com | 🔗 [LinkedIn](https://linkedin.com/in/likhitha-reddy-b) | 💻 [GitHub](https://github.com/LikhithaReddy1805)
+📍 Bengaluru, India | 📧 likhithab205@gmail.com | 🔗 [LinkedIn](https://www.linkedin.com/in/likhitha-reddy-b-lr)| 💻 [GitHub](https://github.com/LikhithaReddy1805)
 
 ---
 
